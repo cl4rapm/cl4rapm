@@ -1,5 +1,5 @@
 - 👋 Ola, eu sou @cl4rapm
-- 👀 estou interessada em 
+- 👀 eu gosto de escutar musica 
 - 🌱 atualmente estou estutando 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
