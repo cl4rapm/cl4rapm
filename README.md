@@ -1,6 +1,6 @@
 - 👋 Ola, eu sou @cl4rapm
 - 👀 eu gosto de escutar musica 
-- 🌱 atualmente estou estutando 
+- 🌱 atualmente estou estutando pensamento computacional 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
