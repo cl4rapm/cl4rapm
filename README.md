@@ -1,7 +1,7 @@
 - 👋 Ola, eu sou @cl4rapm
 - 👀 estou estudndo
-- 🌱 
-- 💞️ procuro 
+- 🌱 eu gosto de musica, serie e filmes
+- 💞️ procuro ganhar nota
 - 📫 Se precisar...@clara.pontes5 mas nao precise!
 
 <!---
