@@ -1,6 +1,6 @@
 -  Ola, eu sou @cl4rapm
 -  estou estudndo
--  eu gosto de musica, serie e filmes
+-  eu gosto de musica, chuva e dormir 
 -  procuro ganhar nota
 -  Se precisar...@clara.pontes5 mas nao precise!
 
